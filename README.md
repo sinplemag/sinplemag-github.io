@@ -1,0 +1,1 @@
+# sinplemag-github.io
